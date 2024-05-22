@@ -1,3 +1,5 @@
+DUNGEON CRAWLER
+
 –História–
 
 Matt e Natalie estavam explorando cavernas juntos, quando ouviram falar da misteriosa caverna de xeorny a qual ninguem tinha coragem de entrar e que guardava diversos mistérios, e os dois resolveram explorar para conhecer mais do lugar e saciar sua curiosidade porém não muito após entrarem ocorreu um desabamento que separou os dois com natalie dizendo que o encontraria 
